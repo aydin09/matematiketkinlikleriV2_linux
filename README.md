@@ -1,0 +1,1 @@
+# matematiketkinlikleriV2_linux
